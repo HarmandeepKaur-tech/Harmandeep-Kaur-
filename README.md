@@ -8,3 +8,5 @@ I completed my 12th class at shahid E Azam sukhdev thaper school
 - "Communication systems are the backbone of modern life, and I'm eager to learn more."
 - "The complexity and beauty of communication systems inspire me to delve deeper."
 # Hobby 
+- "When I'm not talking tech, you can find me belting out tunes or sketching away - music and art are my happy place!"
+  
