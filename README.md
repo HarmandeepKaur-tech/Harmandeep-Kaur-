@@ -4,3 +4,7 @@ I'm staring my journey of b.tech ECE from Guru Nanak Dev engineering college gil
 # Education 
 I completed my 12th class at shahid E Azam sukhdev thaper school 
 # Interest
+- "I'm fascinated by the intricacies of communication systems and their power to connect us."
+- "Communication systems are the backbone of modern life, and I'm eager to learn more."
+- "The complexity and beauty of communication systems inspire me to delve deeper."
+# Hobby 
