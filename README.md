@@ -10,6 +10,6 @@ I completed my 12th class at shahid E Azam sukhdev thaper school
 # Hobby 
 - "When I'm not talking tech, you can find me belting out tunes or sketching away - music and art are my happy place!
 # Excel certificate 
-
+(https://drive.google.com/file/d/11Jo1seuwtS9dSVJid0weLN_E1kfcfWoW/view?usp=drivesdk)
 ## "Appreciate your visit! Come back soon for more updates and insights."
 ### Thank you!!🙏
